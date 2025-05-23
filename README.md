@@ -11,6 +11,6 @@
 
 - 이우진: https://www.notion.so/2025-05-23-1fc816c91f3a801bb3f0ce36b35c2d37?pvs=4
 
-- 전혜정: https://www.notion.so/1fb4e39512cf80d7810bd78130b41802?v=1fb4e39512cf80c1a129000c95dbbdaa&pvs=4
+- 전혜정: https://www.notion.so/1fc4e39512cf8071a95ef0b34ce51800?pvs=4
 
 - 조용원: https://www.notion.so/Daily-1c14fd35173d80f7bcf3c0b873cea7d9?pvs=4
